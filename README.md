@@ -18,7 +18,7 @@ I’m open to collaborating on:
 
 ## 📫 How to Reach Me  
 - 📧 Email: [c.koczorowski@24s.com]  
-- 💼 [LinkedIn Profile]([https://www.linkedin.com/in/your-profile](https://www.linkedin.com/in/camille-koczorowski-5553b7188/))  
+- 💼 [LinkedIn Profile](https://www.linkedin.com/in/camille-koczorowski-5553b7188?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3B6N3EfVP7S%2Bqn0IAamqeMvg%3D%3D)  
 - 🏡 [GitHub Portfolio](https://github.com/ckoczoro24S)  
 
 ---
